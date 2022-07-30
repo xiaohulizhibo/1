@@ -10,7 +10,7 @@ https://xhm3.app/74860810
 https://xhm2.app/74860810
 
 破解版下载链接
-[https://ysk5.club/74860810](https://xhm1.app/74860810)
+https://xhm1.app/74860810
 
 
 另外推荐一个新平台
